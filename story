@@ -1,1 +1,1 @@
-Once a upon a time there lived little red riding hood. she lived with her mother in a small cottage in the woods. one day her mother told her to deliver some warm bread to a grandmom who were sick.
+Once a upon a time there lived little red riding hood. she lived with her mother in a small cottage in the woods. one day her mother told her to deliver some warm bread to a grandmom who were sick. she was strictly told by her mom top direcrtly go to grandomoms home without talking to any strangers.
